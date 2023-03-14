@@ -1,2 +1,5 @@
-# kof-survival-city-cheats-codes-for-gems-hacks
-KOF Survival City Cheats and Codes for gems Hacks full guide
+# KOF Survival City Cheats and Codes for gems Hacks full guide
+
+KOF Survival City Cheats and Codes for gems Hacks full guide - When you are ready, cut down the tree above the dwarf on your right hand until you meet the old man. Talk to him and start the monster spawning on the island. These monsters - mostly skeletons - will make your life more difficult. They will wander around and steal the resources on the ground. If you are too close, they will hit you, which will exhaust some of your heart. This is why I suggest taking a pickaxe first; Skeletons tend to give priority to the stone on the left, so use your pickaxe to break the big stone near the old man&they will also give you two resources. Now, you have two choices. I strongly recommend you take a pickaxe first. Like an axe, you can get it from the dark man on the left side of the island, but please note that it is a little more expensive than an axe. kof survival city tier list cheat
+
+[try now](https://dengmod.cyou/kof-survival-city/)
